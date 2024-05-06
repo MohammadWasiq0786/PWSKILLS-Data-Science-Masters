@@ -2,7 +2,7 @@
 
 ## Hinglish Course
 
-### All Lecture Notes are uploaded as per my knowledge.
+### All Lecture Notes and Assignments are uploaded as per my knowledge.
 
 ### Contact Me 
 
